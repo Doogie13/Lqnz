@@ -4,5 +4,5 @@ Also here's the Discord invite link of my **utility mod** archive server: https:
 
 ``{My Social Stuff}``<br>
 **Minecraft Username: ohLanz<br>
-Discord: ohLanz#9966<br>
+Discord: ohLanz#6373<br>
 YouTube: ohLanz<br>**
